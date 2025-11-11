@@ -1,2 +1,2 @@
-# Proyectos-actuales
-Estudiante de primer semestre en UdG 
+# actual proyect of the school
+
